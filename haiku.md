@@ -3,9 +3,9 @@ Teamwork is great!
 
 
 
-
-
-
+This world of dew
+is a world of dew,
+and yet, and yet.
 
 
 Green leaves drink the sun,
